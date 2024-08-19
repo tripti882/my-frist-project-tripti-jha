@@ -1,1 +1,1 @@
-# my-frist-project-tripti-jha
+# my fristproject- by tripti-jha
